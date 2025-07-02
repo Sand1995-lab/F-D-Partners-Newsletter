@@ -1,0 +1,1 @@
+# F-D-Partners-Newsletter
